@@ -1,1 +1,1 @@
-
+da ya linus torvalds
